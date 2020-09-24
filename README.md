@@ -1,0 +1,1 @@
+# SzGM_Gyak_Linux
